@@ -10,4 +10,4 @@
 
 本站整合欧美与日韩精品视频资源，内容涵盖剧情、激情、日韩综合等多种类型。支持高清视频播放，无广告加载干扰，多终端兼容，随时随地畅享视听盛宴。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/linh20250708/linh4 ）</span>
